@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: poschta@gmail.com
 - 😄 Pronouns: she/her
 
-🌻🏵🌸🎇✋
+🌻🏵🌸🎇✌🤞
 
